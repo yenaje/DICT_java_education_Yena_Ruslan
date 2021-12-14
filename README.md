@@ -1,1 +1,2 @@
-Ена Руслан 539 
+Yena Ruslan 539 
+Bogdan Kovaleno PhD
